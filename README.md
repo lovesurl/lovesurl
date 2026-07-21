@@ -25,7 +25,7 @@ i dont really respond to whispers unless i already am talking to you/know you ou
 
 i dont care abt drama unless its like something that actually matters irl, most things are just stupid cuz this is a pixel horse game lol
 
-dni dteam + wilbur soot supporters/enjoyers + general dni
+dni dteam + wilbur soot supporters/enjoyers + general dni, i survived dsmptwt 2022 😔
 
 <!--
 **lovesurl/lovesurl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
