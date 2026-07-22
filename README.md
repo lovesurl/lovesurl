@@ -1,5 +1,7 @@
 all my info is on my strawpage!!
 
+<img src="https://file.garden/Zh3WHR4PJULzF7tF/Illustration5.png" alt="Trulli" width="892" height="1409">
+
 <!--
 **lovesurl/lovesurl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
