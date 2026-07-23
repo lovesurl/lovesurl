@@ -1,6 +1,8 @@
 all my info is on my strawpage!
 https://lovesurl.straw.page/
 
+i do not support dteam or wilbur ty <4
+
 <!--
 **lovesurl/lovesurl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
